@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Erro562 😁
+## welcome, nice to meet you, I'm Error562
 
  <div>
    <a href="https://github.com/Erro562">
